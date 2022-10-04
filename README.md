@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Qwerty
+- 🌱 I’m currently learning how to code
+- 📫 How to reach me manpro6000@gmail.com is my email
+- 📺 My YouTube is at: https://www.youtube.com/channel/UCXANoL003ezd2CHjuHqmU7Q
