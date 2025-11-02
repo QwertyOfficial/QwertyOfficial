@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Qwerty
-- 🌱 I’m currently learning how to code
+- 🌱 I’m currently learning how to code (Update in 2025: i now know well)
 - 📫 How to reach me *REDACTED* is my email
 - 📺 My YouTube is at: *REDACTED*
